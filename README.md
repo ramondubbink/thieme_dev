@@ -1,5 +1,5 @@
 # thieme_dev
-ヽ( ✧ ‿ ✧ )ﾉ
+(⊃✖  〰 ✖)⊃
 
 <h1> Dont't let ur cyka meme's be ur kurwa dremez</h1>
 
@@ -11,4 +11,4 @@
 <p> Orospu cogugu, Puta madré, Fils de pute, kurwa mác, Tvoya mat' shlyukha (Твоя мать шлюха). </p>
 <p> Vat deze tekst niet te letterlijk op....</p>
 <br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br>
-<p> Het is ook bedoelt naar je moeder</p>
+<p> Het is ook bedoelt naar Thieme's moeder</p>
